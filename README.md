@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmmyConcept95
-- 👀 I’m interested in ...
+- 👀 I’m interested in mentorship, partners 
 - 🌱 I’m currently learning Full-Stack Developer
 - 💞️ I’m looking to collaborate with anyone willing to make this dream come through
 - 📫 How to reach me ..emmyconcept95@gmail.com or emmyconcept007 @tiktok
